@@ -8,4 +8,4 @@
 
 ### você pode entrar em contato comigo 📫
 
-•
+•00001153804232sp@al.educacao.sp.gov.br
