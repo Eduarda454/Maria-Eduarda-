@@ -10,5 +10,5 @@
 
 00001153804232sp@al.educacao.sp.gov.br
 
-•https://tenor.com/bhcve.gif
+https://tenor.com/bhcve.gif
 
