@@ -4,6 +4,8 @@
 
 ⚽•Eu gosto muito de jogar futebol 
 
+🖋️•sou uma pessoa disposta a aprender 
+
 📂•Uso esse espaço para arquivar alguns trabalhos do Javascript
 
 ### você pode entrar em contato comigo 📫
